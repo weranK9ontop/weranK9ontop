@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @weranK9ontop
+- 👋 Hi, I’m OVERDOSE
 - 👀 I run people
 - 🌱 C++
 - 💞️ I'M TAKEN BY WIFE ALLY<3
-- 📫 discord 137.00.1
+- 📫 discord 137.000.1
 - 😄 GG
 - ⚡ bye bye
 
