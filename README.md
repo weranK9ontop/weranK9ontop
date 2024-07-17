@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @weranK9ontop
 - 👀 I run people
 - 🌱 C++
-- 💞️ I'M TAKEN BY WIFE STAR<3
+- 💞️ I'M TAKEN BY WIFE ALLY<3
 - 📫 discord 137.00.1
 - 😄 GG
 - ⚡ bye bye
